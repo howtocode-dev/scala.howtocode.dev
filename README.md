@@ -14,7 +14,7 @@
 সুপার-ডুপার ওয়েলকাম।
 
 > ## Statutory warning
-> __This material may have unexpected misspellings.  So readers are requested for feedbacks.__
+> __This book may contain unexpected misspellings. Reader Feedback Requested.__
 
 ### উপক্রমণিকা
 
